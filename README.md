@@ -47,7 +47,6 @@
 - https://sites.google.com/view/f8wp0qpxxwznu3lhct
 - https://sites.google.com/view/dxstxm5e5qw4yd6a1l
 - https://sites.google.com/view/l06g4b40ev6vpsafx1
-- http://c.kfmail.top/c/tech-resources-eebrszir
 - https://sites.google.com/view/aqektw7oxqqj1h7mun
 - https://sites.google.com/view/um7dsbw0jxmti4eg36
 - https://sites.google.com/view/ccscstbw7a8952r4ky
@@ -58,6 +57,7 @@
 - https://sites.google.com/view/yf6ioxl9kf43lzpy6f
 - https://sites.google.com/view/v4sh3ehcndurnztkkz
 - https://sites.google.com/view/x3t4tpff0l4njro1jb
+- http://43.133.171.72/c/tech-resources-eebrszir
 - https://sites.google.com/view/q9pnp2nuydszmhfpa9
 - https://sites.google.com/view/qpfmcr2gzr7ctr4601
 - https://sites.google.com/view/p7hfy5085pt131bv0l
@@ -165,6 +165,7 @@
 - https://sites.google.com/view/qhp6w11fum4s7f8ojf
 - https://sites.google.com/view/swdfw57l3l9xec9k0j
 - https://sites.google.com/view/tntsrotmn58t4twz0m
+- http://43.133.171.72/c/tech-resources-eebrszir
 - https://sites.google.com/view/kwl40oxcolvh28nvr4
 - https://sites.google.com/view/i54mluxv040jjgfdal
 - https://sites.google.com/view/uzwsvxgcarbirxjrr5
@@ -187,6 +188,7 @@
 - https://sites.google.com/view/q3rsa62kmnuiubo07x
 - https://sites.google.com/view/kjj4vosezlmbl7cshk
 - https://sites.google.com/view/fnlw8nak044141qft9
+- http://43.133.171.72/c/tech-resources-eebrszir
 - https://sites.google.com/view/yewzs2j1llgsnmkypk
 - https://sites.google.com/view/a2rb6zm2bth1u6ps46
 - https://sites.google.com/view/a7ldxy1f90dz9si5zc
@@ -273,12 +275,10 @@
 - https://sites.google.com/view/ykp371tsu4q2w18gb5
 - https://sites.google.com/view/pecoark74kse6qvzoi
 - https://sites.google.com/view/z6s7nl9pftz5or4tib
-- http://c.kfmail.top/c/tech-resources-eebrszir
 - https://sites.google.com/view/w1mhu8rwk35adttjnc
 - https://sites.google.com/view/o41fjwbft2negjv0rt
 - https://sites.google.com/view/evppz690icw1y1hfwf
 - https://sites.google.com/view/bqkhpmwgz18dmy9hny
-- http://c.kfmail.top/c/tech-resources-eebrszir
 - https://sites.google.com/view/l0xapapuuddeg6j08h
 - https://sites.google.com/view/eogf17w4n9pbc7cfml
 - https://sites.google.com/view/s2bl7omg4zf267vrn1
