@@ -47,6 +47,7 @@
 - https://sites.google.com/view/f8wp0qpxxwznu3lhct
 - https://sites.google.com/view/dxstxm5e5qw4yd6a1l
 - https://sites.google.com/view/l06g4b40ev6vpsafx1
+- http://c.kfmail.top/c/tech-resources-eebrszir
 - https://sites.google.com/view/aqektw7oxqqj1h7mun
 - https://sites.google.com/view/um7dsbw0jxmti4eg36
 - https://sites.google.com/view/ccscstbw7a8952r4ky
@@ -272,10 +273,12 @@
 - https://sites.google.com/view/ykp371tsu4q2w18gb5
 - https://sites.google.com/view/pecoark74kse6qvzoi
 - https://sites.google.com/view/z6s7nl9pftz5or4tib
+- http://c.kfmail.top/c/tech-resources-eebrszir
 - https://sites.google.com/view/w1mhu8rwk35adttjnc
 - https://sites.google.com/view/o41fjwbft2negjv0rt
 - https://sites.google.com/view/evppz690icw1y1hfwf
 - https://sites.google.com/view/bqkhpmwgz18dmy9hny
+- http://c.kfmail.top/c/tech-resources-eebrszir
 - https://sites.google.com/view/l0xapapuuddeg6j08h
 - https://sites.google.com/view/eogf17w4n9pbc7cfml
 - https://sites.google.com/view/s2bl7omg4zf267vrn1
